@@ -1,1 +1,1 @@
-# as
+SCRIPT WAS NOT MADE BY ME
